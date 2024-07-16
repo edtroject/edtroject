@@ -2,7 +2,7 @@
 ⠀⠀⠀![](https://komarev.com/ghpvc/?username=edtroject&color=9691DA) 
 
 
-⠀⠀⠀໒꒰ྀིっ˕ -｡꒱ྀི১ ⠀interact with me please! ⠀ask to c / h ⠀be my friend :3
+⠀⠀⠀໒꒰ྀིっ˕ -｡꒱ྀི১ ⠀interact with me please! ⠀
 
 
 
