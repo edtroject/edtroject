@@ -1,8 +1,8 @@
 
-⠀⠀⠀![](https://komarev.com/ghpvc/?username=edtroject&color=8CA5BF) 
+⠀⠀⠀![](https://komarev.com/ghpvc/?username=edtroject&color=9691DA) 
 
 
-⠀⠀⠀໒꒰ྀིっ˕ -｡꒱ྀི১ ⠀just a lovely little thing
+⠀⠀⠀໒꒰ྀིっ˕ -｡꒱ྀི১ ⠀@calebris ⠀@tltancameraman ⠀my freaks
 
 
 
