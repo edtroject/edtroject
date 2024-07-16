@@ -1,8 +1,8 @@
 
-⠀⠀⠀![](https://komarev.com/ghpvc/?username=edtroject&color=9691DA) 
+⠀⠀⠀          ![](https://komarev.com/ghpvc/?username=edtroject&color=9691DA) 
 
 
-⠀⠀⠀໒꒰ྀིっ˕ -｡꒱ྀི১ ⠀interact with me please! ⠀
+⠀⠀          ⠀໒꒰ྀིっ˕ -｡꒱ྀི১ ⠀interact with me please! ⠀
 
 
 
