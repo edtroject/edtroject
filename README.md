@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=edtroject&color=8CA5BF) 
 
 
-૮𐙚꒰ ˶• ༝ •˶꒱𐙚ა ♡
+໒꒰ྀིっ˕ -｡꒱ྀི১ ⠀just a lovely little thing
 
 
 
