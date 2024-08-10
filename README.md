@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=edtroject&color=CED6FE)  ⠀
 
 
- ⠀robin introject.... check out my bundlr nyaw
+ ⠀robin introject.... check out my bundlrs nyaw
 
 
 
