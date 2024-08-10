@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=edtroject&color=CED6FE)  ⠀<kbd> lottie </kbd>
+![](https://komarev.com/ghpvc/?username=edtroject&color=CED6FE)  ⠀
 
 
  ⠀robin introject.... check out my bundlr nyaw
