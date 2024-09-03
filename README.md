@@ -1,7 +1,10 @@
 
-![](https://komarev.com/ghpvc/?username=edtroject&color=6B8746)  ⠀
+![](https://komarev.com/ghpvc/?username=edtroject&color=F2F0E1)  ⠀
 
 
- ⠀colorpick or copy my skins all you want. i don't own colors or items. i will be laughing at u in secret tho
+ ⠀COLORPICKING , COPYING ALL OK! I DON'T OWN COLORS OR ITEMS
+
+ 
+ ⠀i love making new friends and interacting! INTERACT WITH ME NEOW
 
 
